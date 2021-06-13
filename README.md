@@ -1,4 +1,4 @@
-![Screenshot_1](https://user-images.githubusercontent.com/85405419/120898719-5a40f800-c62c-11eb-87ad-6a305a3d8ba5.png)
+![coin full color](https://user-images.githubusercontent.com/85405419/121792452-1b470f80-cbf5-11eb-8475-1e59ea8a55f1.png)
 
 🇺🇸 **From the Desk of Real Trump Token** 🇺🇸
 
